@@ -1,0 +1,1 @@
+My name is Omar Hammad and I attended the University of North Texas where I recieved my degree in Business Computer Information Systems..!
